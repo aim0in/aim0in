@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aim0in
+- 👋 Hi, I’m Imma
 - 👀 I’m interested in art
 - 🌱 I’m currently learning Visual Communication Design
 - 💞️ I’m looking to collaborate on ...
